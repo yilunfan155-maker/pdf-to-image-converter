@@ -17,6 +17,10 @@ Vodnik za PDF to Image Converter Online. Mini-Tools provides this browser-based 
 
 PDF to image, PDF to PNG, PDF to JPG, convert PDF pages to images, online PDF converter, brezpla膷no online PDF to image converter, brezpla膷no online online tool, Mini-Tools PDF to image converter
 
+## Long-tail keywords
+
+convert PDF pages to PNG online, convert PDF to JPG without installing software, export PDF page as image, turn PDF into images for sharing, online PDF to image converter, save PDF pages as PNG files, create JPG images from PDF pages, extract PDF pages as images
+
 ## Note
 
 Ne vna拧ajte zasebnih, ob膷utljivih ali zaupnih podatkov brez razumevanja obdelave.

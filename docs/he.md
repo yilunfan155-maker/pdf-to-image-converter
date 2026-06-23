@@ -17,6 +17,10 @@
 
 PDF to image, PDF to PNG, PDF to JPG, convert PDF pages to images, online PDF converter, 讞讬谞诐 讗讜谞诇讬讬谉 PDF to image converter, 讞讬谞诐 讗讜谞诇讬讬谉 online tool, Mini-Tools PDF to image converter
 
+## Long-tail keywords
+
+convert PDF pages to PNG online, convert PDF to JPG without installing software, export PDF page as image, turn PDF into images for sharing, online PDF to image converter, save PDF pages as PNG files, create JPG images from PDF pages, extract PDF pages as images
+
 ## Note
 
 讗诇 转讝讬谉 谞转讜谞讬诐 驻专讟讬讬诐, 专讙讬砖讬诐 讗讜 讞住讜讬讬诐 讘诇讬 诇讛讘讬谉 讻讬爪讚 讛诐 诪注讜讘讚讬诐.

@@ -16,6 +16,10 @@ This repository contains 50+ localized Markdown pages for this Mini-Tools featur
 
 PDF to image, PDF to PNG, PDF to JPG, convert PDF pages to images, online PDF converter
 
+## Long-tail Keywords
+
+convert PDF pages to PNG online, convert PDF to JPG without installing software, export PDF page as image, turn PDF into images for sharing, online PDF to image converter, save PDF pages as PNG files, create JPG images from PDF pages, extract PDF pages as images
+
 ## Safety Note
 
 Do not paste private, sensitive, or confidential data into public online tools unless you understand how the tool works and what data is processed.

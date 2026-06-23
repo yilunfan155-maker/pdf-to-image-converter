@@ -17,6 +17,10 @@ Canllaw ar gyfer PDF to Image Converter Online. Mini-Tools provides this browser
 
 PDF to image, PDF to PNG, PDF to JPG, convert PDF pages to images, online PDF converter, am ddim ar-lein PDF to image converter, am ddim ar-lein online tool, Mini-Tools PDF to image converter
 
+## Long-tail keywords
+
+convert PDF pages to PNG online, convert PDF to JPG without installing software, export PDF page as image, turn PDF into images for sharing, online PDF to image converter, save PDF pages as PNG files, create JPG images from PDF pages, extract PDF pages as images
+
 ## Note
 
 Peidiwch 芒 rhoi data preifat, sensitif neu gyfrinachol heb ddeall y prosesu.
